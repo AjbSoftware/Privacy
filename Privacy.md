@@ -7,7 +7,7 @@ IN SHORT
 – The only personal information we may collect is an advertisement ID. You can choose if you want to share this, so the advertisements you see will match your interests.
 – Your data is being kept safely secured and handled with utmost care.
 – You may contact us to be informed about, alter or delete your data
-– If you have questions or concerns, contact us at support@online-converting.com
+– If you have questions or concerns, contact us at ajbsoftwaredevelopers@gmail.com
 
  
 
